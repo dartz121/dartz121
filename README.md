@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @dartz121
+- 👀 I’m interested in hackintoshing and iphone jailbreaking
+- 🌱 I’m currently planning to start learning Xcode 
+- 📫 I can be reached on Discord username CupcakkeWetCh0chie
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: i like eating ramen with sour cream/greek yogurt 
